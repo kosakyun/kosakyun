@@ -1,4 +1,4 @@
-# About me:
+# About Me:
 
 I'm a guy that really likes playing games. I also review visual novels sometimes.
 
